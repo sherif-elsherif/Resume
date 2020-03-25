@@ -2,7 +2,7 @@ This is my awesome resume for anyone who might be interested.
 
 
 ## Senior Data Analyst/ Tech Lead
-**Kitchener, ON **
+**Kitchener, ON**
 ### SELSHERIF20@GMAIL.COM   | Mobile: (+1)647-403 5968
 
 
